@@ -124,4 +124,4 @@ As of February 2025, the user limit of 500 has been exceeded. To test the websit
 
 Wanna reach out to me? DM me at 👇
 
-Email: mahmudul15-13791@diu.edu.bd
+Email: gauravvbade@gmail.com
